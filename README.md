@@ -6,7 +6,7 @@ How long has she been gone!?! Ain't no sunhsine folks.
 
 I, too, found myself aloft wild tempest in the wee hours, whereupon I'd discovered a bewilderment of follies and mystery - upon the dumbwaiter, in the purple receptacle for which yon master chef's vials, flasks and carafes are placed for the incendiary, KINDLE, some undulated in it's original adornment, prepped for fire but born, nay stolen, from the master's library. A betrayal no less from the queen's wispy machinations to ruin her beloved's trove of knowledge and wealth of wise artisans and scribes.
 
-```The Meg
+### The Meg
 
 So, I rate a president based off of favorables across party lines and longevity of their influence post-presidency. So, in trying to determine which party actually fits most people based on the reports and discussions I've had, I think these statements best represent the overall.
 
